@@ -1,0 +1,1 @@
+A escala Celsius, também conhecida como a escala centígrada, é uma escala termométrica do sistema métrico usada na maioria dos países do mundo. Teve origem a partir do modelo proposto pelo astrônomo sueco Anders Celsius. Wikipédia
